@@ -36,3 +36,21 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
 
 1. Solve a problem (fulfill a need)
 1. To feel good
+
+## Chapter 2: Get Over Your Mom's Good Intentions
+
+* we must engage others in conversation to make friends
+    * the the risk and engage others first
+    * find an approachable person and introduce ourself
+* start small talking and let others see your personality
+    * we know how much we appreciate the efforts others put into conversation
+    * reciprocate and make the same effort
+* good things come to those who proactively try and create those good things
+    * most other folks are scared to death to talk to us
+    * engage others first, and they will appreciate your leadership and friendship
+        * if we wait for others to engage us first, then we are self-centered
+            * we prioritize our personal comfort over every one else's
+            * we must take ownership of our conversational responsibilities
+* to become a great conversationalist
+    * become invested in the conversation
+    * help others feel comfortable in the conversation
