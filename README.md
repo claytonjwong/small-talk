@@ -54,3 +54,12 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
 * to become a great conversationalist
     * become invested in the conversation
     * help others feel comfortable in the conversation
+
+## Chapter 3: Take the Plunge -- Start a Conversation!
+
+* Small talk has *no* agenda, it exists to help us be aware of each other on a fundamentally human level.
+* The best way to get others to "open up" is to look them straight in the eye and ask what their name is
+    * Place emphasis on "*your*" when asking "what's *your* name?" to signal that they are important
+* ⭐️ Rule #1 of good conversation is to learn and use other folk's name
+    * It's beneficial to make introductions to others
+    * Using folks' names makes them feel special and that we are interested in them
