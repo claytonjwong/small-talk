@@ -88,3 +88,24 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
         * What was that like for you...
         * What brought you to...
         * Why...
+
+## Chapter 6: Hearing Aids and Listening Devices
+
+> The biggest block to personal conversation is one man's inability to listen intelligently, understandingly, and skillfully to another person
+>
+- [Dr. Ann Appelbaum](https://www.anneapplebaum.com/)
+
+### 3 Parts of Attentive Listening
+
+1. **Visual**
+    a. facial experssions
+    b. head nods
+    c. positive body language
+    d. maintain eye contact
+2. **Verbal**
+    a. active listening with follow-up questions
+    b. clarify and/or re-phrase to prevent mis-communication
+3. **Mental**
+    a. stay focused on the conversation
+    b. behave as if there were no distractions
+    c. retain what's been said
