@@ -63,3 +63,14 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
 * ⭐️ Rule #1 of good conversation is to learn and use other folk's name
     * It's beneficial to make introductions to others
     * Using folks' names makes them feel special and that we are interested in them
+
+## Chapter 4: Keep the Conversation Going!
+
+* Make sure to look around the room when first entering
+    * There will be folks whom are alone
+    * Make eye contact and be first to smile
+        * It's the effort that counts
+        * Take a risk and start a conversation
+* Genuine interest is flattering and essential to a good conversation
+    * The more interest we show in others, the more interesting we are to them
+    * We are all more alike than different
