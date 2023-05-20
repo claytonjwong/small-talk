@@ -109,3 +109,27 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
     a. stay focused on the conversation
     b. behave as if there were no distractions
     c. retain what's been said
+
+## Chapter 7: Prevent Pregnant Pauses with Preparation
+
+* We can prepare for a conversation like we prepare for an interview
+    * What do you enjoy most abou this season of the year?
+    * What got you involved in this organization/event?
+    * If you weren't here, what would you be doing at this very moment?
+    * If you could meet any one person, whom would you choose?
+    * Tell me about an issue that matters a great deal to you
+    * What has been your most important work experience?
+    * What word would you say describes you best?
+    * Do you have a personal motto or creed?
+    * Do you have any heroes that you greatly admire?
+    * What did people in high school think you were like?
+    * What do you do that you wish you could stop doing?
+* A good conversation requires balance of give and take
+    * If we are constantly asking questions, then our partners may resent our lack of parity, so it is important to talk about ourselves as well
+        * Disclose information about ourselves which is comfortable and unvcontroversial (easy, light, positive information)
+        * Choose to share information which is appropriate for the occasion/situation
+            * When in doubt, leave it out
+* Complimenting folks is an easy way to keep a conversation going
+    * Authentic compliments make others feel good, enhances rapport, and makes the conversation easier
+    * The power of a sincere compliment is enormous
+    * Nothing makes folks feel more special than having their finer traits noted and appreciated
