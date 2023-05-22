@@ -133,3 +133,10 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
     * Authentic compliments make others feel good, enhances rapport, and makes the conversation easier
     * The power of a sincere compliment is enormous
     * Nothing makes folks feel more special than having their finer traits noted and appreciated
+
+## Chapter 8: Conversational Clout
+
+* We must choose our words carefully
+    * Otherwise our words may *not* reflect the message we intend to deliver
+    * If many ways we are what we think and say
+        * The window to our soul is through our words
