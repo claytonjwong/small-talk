@@ -140,3 +140,14 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
     * Otherwise our words may *not* reflect the message we intend to deliver
     * If many ways we are what we think and say
         * The window to our soul is through our words
+
+## Chapter 9: Crimes and Misdemeanors
+
+* The FBI Agent
+* The Braggart
+* The One-Upper (Can you top this?)
+* The Monopolizer
+* The Interrupter
+* The Poor Sport
+* The Know-It-All
+* The Adviser
