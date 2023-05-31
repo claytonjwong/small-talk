@@ -151,3 +151,24 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
 * The Poor Sport
 * The Know-It-All
 * The Adviser
+
+## Chapter 10: The Graceful Exit
+
+* I need to go see the exhibits
+* I walk to talk to the speaker
+* I'm going to circulate to meet some new members
+* I want to see if there are others from my industry here today
+* I promised myself that I'd meet 3 new people today
+* I want to meet some other potential clients
+* I want to get around and say hello to everyone at this party/meeting
+
+### Show Appreciation
+
+* It was wonderful to see you and hear about the convention
+* I really enjoyed talking to you about your business
+* I appreciate your willingness to share your expertise
+* Thank you for the delightful conversation
+* I'm glad you introduced me to ____.  Its very interesting.
+* Its nice to meet someone involved in ____.
+* It was thoughtful to introduce me to ____.  Thanks.
+* I appreciate your effort to include me in the conversation.  Its tough being new and you made it easier for me.
