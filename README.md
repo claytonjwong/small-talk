@@ -172,3 +172,7 @@ How to Start a Conversation, Keep It Going, Build Networking Skills and Leave a 
 * Its nice to meet someone involved in ____.
 * It was thoughtful to introduce me to ____.  Thanks.
 * I appreciate your effort to include me in the conversation.  Its tough being new and you made it easier for me.
+
+## Chapter 11: The Conversational Ball is in Your Court
+
+Conversations are filled with opportunities, and it is our responsbility to initiate them and keep them going.
